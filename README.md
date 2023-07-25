@@ -1,4 +1,4 @@
-Hi, my name is Kien. I'm a graduate student of Posts and Telecommunication Institute of Technology abbreviated as PTIT. 
+Hi, my name is Kien. I'm a graduated student of Posts and Telecommunication Institute of Technology abbreviated as PTIT. 
 I have a passion for technology and anything related to technology.  
 I'm fascinated with both mechanical keyboards and billiards.
 
